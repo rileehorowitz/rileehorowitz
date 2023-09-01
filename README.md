@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Hello there! I'm Rilee Horowitz (he/him), a new student and software developer in Cleveland, Ohio.
+I'm Rilee Horowitz, a new student and software developer in Cleveland, Ohio.
