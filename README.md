@@ -6,4 +6,4 @@ I'm Rilee Horowitz, a forever student and software developer in Cleveland, Ohio.
 - 💬 Ask me about: Blades in the Dark, D&D, digital art, or anyting nerdy!
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/rileehorowitz/) | rileehorowitz@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm missing part of my tongue :P
+- ⚡ Fun facts: I was on local television as a contestant in a trivia quiz show. | I'm missing part of my tongue! :P
